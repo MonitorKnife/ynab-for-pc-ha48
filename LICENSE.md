@@ -1,4 +1,4 @@
-# 
+# Enhance YNAB for PC | YNAB for Windows with advanced YNAB for PC | YNAB for Windows Template | receipt-capture + project-accounting, the #1 template. Includes receipt-capture and
 
 
 
